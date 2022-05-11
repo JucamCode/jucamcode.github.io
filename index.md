@@ -1,3 +1,3 @@
-# JucamCode
-## Juan Carlos Mendoza Awad
+# Desarrollador
+## Blog oficial
 
